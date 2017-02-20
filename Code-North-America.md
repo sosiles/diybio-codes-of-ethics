@@ -1,3 +1,7 @@
+Down in the earth, in dark, alone,
+A mockery of the ghost in bone,
+The strangeness, passing the unknown:
+
 #DIYBIO CODE OF ETHICS
 
 ## OPEN ACCESS
